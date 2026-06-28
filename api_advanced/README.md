@@ -1,1 +1,1 @@
-please redme
+please read me 
